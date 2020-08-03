@@ -1,1 +1,1 @@
-www.linkedin.com/in/prateeksha-kulkarni-
+[link to my linkedin profile](www.linkedin.com/in/prateeksha-kulkarni-)
