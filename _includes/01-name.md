@@ -1,2 +1,2 @@
-## My name is Prateeksha kulkarni
-### welcome to my portfolio
+##      **My name is Prateeksha kulkarni**
+### *Welcome to my portfolio*
